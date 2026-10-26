@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍🎓 Currently studying Computer Science at Lancaster University<br>🔭 Looking for intership for the summer of 2026<br>🎓 Graduate in Business Management<br>🇩🇪 Living in Germany<br>🇫🇷&🇪🇸 Half French, Half Spanish
+🧑‍🎓 Currently studying Computer Science at Lancaster University<br>🔭 Looking for intership for the summer of 2027<br>🎓 Graduate in Business Management<br>🇩🇪 Living in Germany<br>🇫🇷&🇪🇸 Half French, Half Spanish
 
 
 ## 🌐 Socials:
